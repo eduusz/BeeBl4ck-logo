@@ -1,1 +1,0 @@
-# BeeBl4ck-logo
